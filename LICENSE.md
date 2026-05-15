@@ -1,4 +1,4 @@
-
+Enhance your Windscribe experience with ultra-secure Windscribe Addon | camouflage-mode + high-speed-servers, the #1 addon. Includes camouflage-mode and high-speed-servers for a
 
 
 
